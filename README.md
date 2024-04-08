@@ -1,0 +1,1 @@
+# Sugoi-Batch-VN-Translator
